@@ -1,1 +1,1 @@
-zmiana
+napisac co chcemy
